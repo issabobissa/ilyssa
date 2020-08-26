@@ -1,2 +1,2 @@
-## salve mundi
-### saving a spot on the net for myself, for later.
+## salve mundi :wave:
+### saving a spot on the web for myself, for later
